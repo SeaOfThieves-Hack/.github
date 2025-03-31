@@ -1,7 +1,7 @@
 # 🏴☠ **SEA OF THIEVES HACK: Aimbot, ESP & Loot Hacks (Anti-Ban)**  
 
-## 🔥 Extended Description  
-Become the most powerful pirate in the **Sea of Thieves** with our **cheat tool** packed with **aimbot**, **radar hack**, and **unlimited resources**. Designed for players who want to dominate battles, loot chests instantly, and outsmart rivals.  
+
+**Become the most powerful pirate in the **Sea of Thieves** with our **cheat tool** packed with **aimbot**, **radar hack**, and **unlimited resources**. Designed for players who want to dominate battles, loot chests instantly, and outsmart rivals.**
 
 [![Download Cheats](https://img.shields.io/badge/Download-Cheat%20Tool-blueviolet)](#)  
 
